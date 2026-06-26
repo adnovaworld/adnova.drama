@@ -1,1 +1,0 @@
-# adnova.drama
